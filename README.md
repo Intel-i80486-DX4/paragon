@@ -6,5 +6,5 @@ lambda oyvey
 leaked!!!!!!! so cool hello https://discord.gg/RStSj78Z discord invite
 to private discord
 this mod
-so bad
+so bad uncool 
 hahahahahahahaa
